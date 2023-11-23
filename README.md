@@ -1,0 +1,1 @@
+# tyt-fizik-soru-bankasi-fds-denemelik
